@@ -1,5 +1,5 @@
 # 💫 About Me:
-## I'm currently learning on Cybersecurity and Software Engineering<br>I'm also a student in Wu-Ling Senior High School
+## I'm currently learning on Cybersecurity and Software Engineering<br>I'm also a student in NCU MIS
 
 
 ## 🌐 Socials:
